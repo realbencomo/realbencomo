@@ -7,7 +7,7 @@
 - 💬 Ask me about ... anything!
 - 📫 How to reach me: ... e-mail me at realbencomo@gmail.com
 - 😄 Pronouns: ... He/Him but you can use any pronoun you like I really don't care
-- ⚡ Fun fact: ... I've been compared to Scott Pilgrim and any character that Michael Cera has or could play
+- ⚡ Fun fact: ... I've been compared to Scott Pilgrim and any character that Michael Cera has played or could play
 
 My virtual pet and IRL pet is called Vaquita:
 
